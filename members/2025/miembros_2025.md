@@ -6,10 +6,11 @@ Fecha: 8/8/25
 
 - Isaac Gutierrez Huarachi
 - Ricardo Ramirez Caero - I Use Arch BTW
-- Stefany Saavedra Garcia
+- Stefany Saavedra Garcia - Nana la rana
 - Steven Joel Ramos Salazar - Nothing is true, everything is permitted
 -
 -
 -
 -
 - 
+
