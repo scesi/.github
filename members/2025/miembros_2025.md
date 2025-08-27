@@ -11,6 +11,6 @@ Fecha: 8/8/25
 - Andrea Lizbeth Quelali Quispe - 😺
 - Mauricio Uzeda Rocha - Imagina que tienes 2 vacas
 - Shamir Leonardo Terán Mustafá - Humans are amazing
--
+- Isai Espinoza Quiroga - init1
 -
 - 
