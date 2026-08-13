@@ -13,4 +13,4 @@ Fecha: 8/8/25
 - Shamir Leonardo Terán Mustafá - Humans are amazing
 - Daniel Jose Reque Mendoza - I have hope in humanity
 - Isai Espinoza Quiroga - init1
-- 
+  
